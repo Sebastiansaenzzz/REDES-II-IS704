@@ -1,2 +1,2 @@
 LINK PARA EL TRABAJO DE REDES 2: 
-https://drive.google.com/drive/folders/1r9F5rMxv012Z5b7n2FubZ8sNDHH__vi_
+https://drive.google.com/file/d/1Xdy1gcrGbk4qx8v6PXbBEkJcVVPv2FVK/view?usp=drive_link
